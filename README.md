@@ -1,4 +1,4 @@
-# covid-wani
+# covid-wani⚕️
 
 ##About
 
